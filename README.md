@@ -29,4 +29,4 @@
 
 ### <p align="center"> Extra ★
 #### <p align="center"> Interests !
-<p align="center"> block tales, regretevator, pony town, phighting, fnf, pokemon, others i wont list
+<p align="center"> block tales, pjsk, pony town, phighting, fnf, pokemon, others i wont list
