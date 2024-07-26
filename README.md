@@ -5,7 +5,7 @@
 <p align="center"> _______________________________________
 
 <p align="center">
-<img src= https://i.pinimg.com/564x/45/91/f7/4591f7dfb0c2df4134de406a1ebd49e5.jpg width=250>
+<img src= https://static.wikia.nocookie.net/projectsekai/images/5/53/Stamp0220.png/revision/latest?cb width=250>
 
 </p>
 
