@@ -12,7 +12,7 @@
 <p align="center"> _______________________________________
 
 ### <p align="center"> General Info ★
-<p align="center"> use listed pronouns ( she / her )
+<p align="center"> use listed pronouns ( she / they )
 <p align="center"> im a female, dont get that wrong
 <p align="center"> call me anything, friends may call me liv or livi
 <p align="center"> im nervous / awkward most of the time
