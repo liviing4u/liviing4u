@@ -24,7 +24,7 @@
 <p align="center"> i sit alone, because i usually have no one to sit by
 <p align="center"> sometimes offtab, expect late replies
 <p align="center"> i mostly stay in the phighting area ( safe server )
-<p align="center"> w21 during inactiveness
+<p align="center"> w2i when inactive
 <p align="center"> you may take inspo, no impersonation nor copying
 
 ### <p align="center"> Extra ★
